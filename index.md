@@ -13,7 +13,7 @@ Planning a short Himalayan break? Chopta’s meadows and the Tungnath–Chandras
 - *Stays:* Camps & homestays in Chopta/Sari
 
 👉 *Full package & bookings:*  
-[Chopta Tungnath Trek Package – Travelophila](https://travelophila.com/our-tour-packages/)
+[Chopta Tungnath Trek Package](https://travelophila.com/our-tour-packages/)
 
 More reads:  
 - [Talk to our local team](https://www.travelophila.com/)
