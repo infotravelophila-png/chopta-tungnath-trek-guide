@@ -10,7 +10,7 @@ Trek to *Tungnath (the highest Shiva temple)* and *Chandrashila* for sunrise vie
 - *How to reach:* Rishikesh → Ukhimath → Chopta
 
 *Full itinerary & prices:*  
-👉 [Chopta Tungnath Trek Package – Travelophila](https://travelophila.com/our-tour-packages/)
+👉 [Chopta Travel Packages](https://travelophila.com/our-tour-packages/)
 
 *Helpful reads:*  
 - [Best Time to Visit Chopta–Tungnath](https://travelophila.com/best-time-to-visit-chopta-tungnath-snow-trekking-camping/)  
